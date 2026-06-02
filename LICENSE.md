@@ -1,4 +1,4 @@
-# 
+# Inteligente Quicken scripts para Mac OS | Avanzado Quicken scripts para PC Windows. Con seguimiento en tiempo real y compresión de PDF — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
